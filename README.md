@@ -12,7 +12,7 @@ I'm eager to collaborate on web development projects that challenge and inspire 
 
 ## 📫 How to Reach Me
 
-Feel free to reach out to me via email at [gokulrajst555@gmail.com](mailto:gokulrajst555@gmail.com) or connect with me on LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/gokulraj-st/)
+Feel free to reach out to me via email at [gokulrajst555@gmail.com](mailto:gokulrajst555@gmail.com) | +91 9600278466
 
 ## 😄 Pronouns
 
